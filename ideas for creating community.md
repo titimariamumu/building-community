@@ -11,8 +11,8 @@
 [The Ultimate Guide to Building an Online Community in 2024](https://www.mightynetworks.com/resources/how-to-build-an-online-community)
 
 
-### asking people how to bi
-Beaei - the best way to create on online community
+### asking people "what is the best way to build a community online"
+Beaei - the best way to create on online community is to work towards a goal or take action together
 
 
 ---
