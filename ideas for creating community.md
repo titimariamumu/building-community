@@ -1,5 +1,5 @@
 ## goals
-[luck's call to action](https://www.tiktok.com/@luckbianc/video/7343385053038136619?is_from_webapp=1&sender_device=pc&web_id=7339202824513570350)
+[orginal video](https://www.tiktok.com/@luckbianc/video/7343385053038136619?is_from_webapp=1&sender_device=pc&web_id=7339202824513570350)
 
 
 ## research
