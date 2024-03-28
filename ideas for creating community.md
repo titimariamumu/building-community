@@ -1,4 +1,6 @@
 # ideas for creating community
+## goals
+[orginal video](https://www.tiktok.com/@luckbianc/video/7343385053038136619?is_from_webapp=1&sender_device=pc&web_id=7339202824513570350)
 
 ## goals
 [luckbianc's call to action](https://www.tiktok.com/@luckbianc/video/7343385053038136619?is_from_webapp=1&sender_device=pc&web_id=7339202824513570350)
@@ -14,8 +16,8 @@
 [The Ultimate Guide to Building an Online Community in 2024](https://www.mightynetworks.com/resources/how-to-build-an-online-community) the frist part of this article is an ad **10 Steps To Building An Online Community** is were the real article starts
 
 
-### asking people how to bi
-Beaei - the best way to create on online community
+### asking people "what is the best way to build a community online"
+Beaei - the best way to create on online community is to work towards a goal or take action together
 
 
 ---
