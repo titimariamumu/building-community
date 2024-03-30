@@ -7,24 +7,27 @@ the best way to create on online community is to work towards a goal or take act
 
 ##### rise
 
-community are not better than the founder.
+The community is not better than the founder.
 
 make sure the founders belive in the goal
 
 have boundaries and rules
 
-need a goal or theme.
+need:
+- a goal or theme.
+- mods that can exercise good jugdement.
+- figuring out the age rages (g, pg, pg-13, r, x) for the server.
 
-good mods the had good jugdement
+common mistakes:
+    - not given the community has aim
+    - not figuring out the age rages (g, pg, pg-13, r, x)
 
-*rule, bounties, goals(mission statment), age, safty*
+main take away
 
-
-mistakes
-    - the commuity has aim
-        - figure out the age rages (g, pg, pg-13, r, x)
+have *rule, bounties, goals(mission statment), age, safty*
 
 
 #### vixel
 
-be picky about the frist wave will set the culture
+be picky about the frist wave of people.
+they will set the culture!
