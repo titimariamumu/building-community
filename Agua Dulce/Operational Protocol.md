@@ -10,6 +10,7 @@
     - volunteers must sign
       - liability waiver
       - code of conduct
+      - (optional) release of information...pictures, name, art for advertisement of Agua Dulce
 
 - communication procotol
   - Online video conferencing 
