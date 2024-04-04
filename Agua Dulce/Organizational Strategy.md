@@ -4,3 +4,4 @@ Inspiration from The Sustainable Economies Law Center
 
 Other:
 - Change Managment Strategy
+- Democratic Decision Making 
