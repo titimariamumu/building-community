@@ -1,0 +1,19 @@
+- how to onboard volunteers and participants
+  - volunteers must
+      - read Agua Dulce Onboarding Manual 
+      - submit a resume
+      - undergo an interview
+      - track hours
+      - sign volunteer contract
+      - sign code of conduct
+      - liability waiver
+    - volunteers must sign
+      - liability waiver
+      - code of conduct
+
+- communication procotol
+  - Online video conferencing 
+  - see code of conduct 
+  - social media management 
+    - instagram
+    - email 
