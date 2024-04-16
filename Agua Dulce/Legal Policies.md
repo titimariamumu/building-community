@@ -1,6 +1,0 @@
-- volunteer contracts
-- copyright
-- citational politics 
-- liability waiver
-- software liscences
-- privacy (see security policy)
